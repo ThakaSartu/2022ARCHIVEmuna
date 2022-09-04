@@ -8,6 +8,9 @@
 ## Hole To Another Universe
 One day my blog will `RETURN true` when run from the [command](https://youtu.be/EDuvO_Qpk2s) line!
 
+
+[Inside Louvre Museum Paris, Mona Lisa - (Part 1) 🇫🇷 France - 4K Walking Tour](https://www.youtube.com/watch?v=6vuFh6NNa70)
+<IMG src="https://thephotoacademy.com/storage/magazine/444/THE-PHOTO-ACADEMY-courses-nature-7.jpg">
 <IMG src="https://i.pinimg.com/originals/82/38/43/82384346f772edf917ad61370552b14e.gif">
 
 [The%20Goddess%20of%20Spring%20-%20Silly%20Symphony](https://www.youtube.com/watch?v=pBo8NOarYMo)
