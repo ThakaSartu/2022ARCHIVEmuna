@@ -8,7 +8,9 @@
 ## Hole To Another Universe
 One day my blog will `RETURN true` when run from the [command](https://youtu.be/EDuvO_Qpk2s) line!
 
-
+[What makes speakers happy](https://lea.verou.me/category/thoughts/)
+[Even More CSS Secrets - Lea Verou](https://www.youtube.com/watch?v=8BXQ3zCihYM)
+[CSS Variable Secrets | Lea Verou | CSS Day 2022](https://www.youtube.com/watch?v=ZuZizqDF4q8)
 ##  مونا
 [(Rare) 🏆Tony Touch - Hip Hop #48 (1995) NYC Brooklyn sides A&B](https://www.youtube.com/watch?v=_AvRfO7CFcM)
 [Inside Louvre Museum Paris, Mona Lisa - (Part 1) 🇫🇷 France - 4K Walking Tour](https://www.youtube.com/watch?v=6vuFh6NNa70)
